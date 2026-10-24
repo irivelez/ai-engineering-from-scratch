@@ -12,4 +12,14 @@ However, great things has happened:
 - I can advance step by step, instead of trying to do all at the same time.
 - Like climbing a mountain. You cannot see the peak, otherwise you can lose your north and strenght to continue. You need to focus in the next step.
 
+you are so smart, intelligent and determinat. You are going to win no matter what. You are going to success.
+Accept
+Trust
+Thank
+Surrender
 
+Your eyes are going to heal
+Your body has the capability to heal
+Take it easy
+Keep your focus and continue treating your body and mind as your friends.
+Give yoru body great food and sleep well
